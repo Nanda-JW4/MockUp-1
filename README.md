@@ -4,7 +4,7 @@
 
 # CARA MENGGUNAKAN WEBSITE __RAJA GEPREK__
 ## Berikut ini adalah link untuk menuju ke website kami:
-## [KLIK DISINI](https://roaringuniv.my.canva.site/your-paragraph-text)
+## [KLIK DISINI](https://roaringuniv.my.canva.site/raja-geprek)
 
 ## Fungsi Instruksi
 Instruksi ini akan membantu anda para pengguna saat sedang bernavigasi di website __RAJA GEPREK__ kami>
